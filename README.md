@@ -15,7 +15,7 @@
 ♡ 　Any pronouns　;　**5**teen‎
 
 
-usually offtab　*or*　w/ my [pookster](https://github.com/scaraddicted) !
+usually offtab　*or*　w/ my [BFF](https://github.com/scaraddicted) !
 
 [rentry](https://rentry.co/tartagliaddicted)         
 [prns page](https://en.pronouns.page/@tartagliaddicted)
